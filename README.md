@@ -1,1 +1,1 @@
-Day 2 update note 
+Day 3 update note 
